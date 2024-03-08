@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Prasannakumar0518
-- 👀 I’m interested in REACT DEVLOPMENT 
+- 👀 I’m interested in REACT DEVELOPMENT 
 - 🌱 I’m currently learning in College
 - 💞️ I’m looking to collaborate with Myself
 - 📫 How to reach me @jothimuraliprasannna@gmail.com
